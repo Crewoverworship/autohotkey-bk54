@@ -1,4 +1,4 @@
-# 
+# instant Advanced SystemCare PC版 扩展 是最佳 Advanced SystemCare PC版 扩展，集成 栅栏创建 和 显示配置文件。安全、可靠、优化，性能最大化。
 
 
 
